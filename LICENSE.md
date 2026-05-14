@@ -1,4 +1,4 @@
-#  
+#  Experience 3008 like never before with 3008 Scripts hidden, the #1 Script. Includes invisibility and instant win for unbeatable performance.
 
 
 
